@@ -1,0 +1,1 @@
+Detail terkait Final Project bisa diakses pada link berikut: <a href="https://docs.google.com/presentation/d/1F-JqBrjXQeThw2s47pJ9UvZvhaP62P1U/edit?usp=sharing&ouid=109814190797382685136&rtpof=true&sd=true" target="blank">klik link ini</a>
